@@ -1,1 +1,3 @@
-# fo
+# focus MeGa
+
+** **News**
